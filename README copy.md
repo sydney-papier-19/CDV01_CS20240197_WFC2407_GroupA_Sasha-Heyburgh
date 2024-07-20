@@ -28,13 +28,13 @@ By completing this reflection, you will gain a clearer understanding of your car
     - List your current skills and areas of expertise.
     = 
     - Identify skills you need to develop or improve.
-    = Time management, 
+    
 2. **Interests and Values**:
     
     - Describe your key interests related to your career.
 
     - What values are important to you in a work environment?
-    = Respect, Communication, 
+   
 
 ### Part 2: Career Exploration Insights
 
